@@ -1,0 +1,1 @@
+# author.partneradestek.com
